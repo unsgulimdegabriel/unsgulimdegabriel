@@ -1,6 +1,6 @@
 ## Seja bem vindo ao meu perfil 💤
 
-<img width="2299" height="864" alt="banner(2)" src="https://github.com/user-attachments/assets/b272b385-a492-4f54-9e84-06d96469c237" />![113119](https://github.com/user-attachments/assets/0f0c1aa6-f44d-49c8-8198-fee0231e74b7)
+<img width="2299" height="864" alt="banner(2)" src="https://github.com/user-attachments/assets/b272b385-a492-4f54-9e84-06d96469c237" />
 
 
 <h2 align="center">  💤Algumas Informaçoes minhas💤
